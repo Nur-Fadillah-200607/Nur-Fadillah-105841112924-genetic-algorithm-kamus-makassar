@@ -1,0 +1,1 @@
+# Nur-Fadillah-105841112924-genetic-algorithm-kamus-makassar
